@@ -1,1 +1,0 @@
-# CWWTechAfrica-Bootcamp-Individual-Project
